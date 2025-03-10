@@ -27,7 +27,7 @@ Interested in partnering with us or have a project in mind? [Let's connect!](htt
 
 ## 📬 Get in Touch
 
-- **Email**: [development@rankvet.com](mailto:development@rankvet.com)
+- **Email**: [hello@techport.com.bd](mailto:hello@techport.com.bd)
 - **LinkedIn**: [LinkedIn Profile](https://www.linkedin.com/company/techport-bd/)
 - **Website**: [Company Website](https://www.techport.com.bd/)
 
